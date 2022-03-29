@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @philcreamer
-- 🎼📹 I'm a Musician and Visual Storyteller
+- 🎼📹 I'm a Musician and Audio Video Storyteller
 - 💞️ I’m looking to collaborate on creative projects
 - 📫 You can visit hereonout.ca for more projects and info!
 
