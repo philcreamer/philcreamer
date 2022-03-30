@@ -277,7 +277,6 @@ Saturday 10 October 2015
 Folly & the Hunter
 Mouton Noir, Val-David, QC, Canada
 
-I WAS THERE
 Friday 09 October 2015
 Folly & the Hunter
 Vieux Bureau de Poste, Lévis, QC, Canada
@@ -536,7 +535,6 @@ Folly & the Hunter
 with Jack Garratt, Rare Monk, and 3 others
 Notting Hill Arts Club, London, UK
 
-I WAS THERE
 Saturday 03 May 2014
 Folly & the Hunter
 with AJIMAL, Tiz Mcnamara, and 1 other
